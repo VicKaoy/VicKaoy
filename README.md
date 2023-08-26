@@ -9,4 +9,4 @@ I'm a programmer with astigmatism, Lua enthusiast, otter and dog lover and leadi
 ## Social
 
 + **My Discord: @vk15**
-+ **My Twitter (also on bio): [@vk15_](https://x.com/vk15_)**
++ **My Twitter: [@vk15_](https://x.com/vk15_)**
