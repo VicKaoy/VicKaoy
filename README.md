@@ -1,8 +1,6 @@
 # **Hi!**
+I do art and programming i think. Also astigmatic
 
-I'm a astigmatic, (somewhat) programmer guy.
-
-## Social
-
-+ **My Discord: @vk15**
-+ **My Twitter: [@vk15_](https://x.com/vk15_)**
+## Socials
++ Reach me on Discord: **@vk15**
++ Reach me on Revolt: **vk15#2670**
